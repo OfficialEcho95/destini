@@ -1,4 +1,4 @@
-# Destini 🤔
+# Destini 
 
 ## My Goal
 
